@@ -1,0 +1,9 @@
+First Follow Me On GitHub
+
+
+1. Open the "Keygen" .exe
+2. Select the VM software version
+3. Copy the code and pest it in the VM 
+
+
+ENJOY
